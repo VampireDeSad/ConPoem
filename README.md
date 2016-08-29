@@ -1,1 +1,1 @@
-# ConPoem
+# ConPoem for everyone
